@@ -8,3 +8,4 @@ I will document all my successes and fails here
 
 I make an folder for every week of progress with an documentation how it was
 
+10/10 "Siro is rly cute" -Vivian
